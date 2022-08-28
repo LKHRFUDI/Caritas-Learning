@@ -7,7 +7,9 @@
 
 以“乡愿.MP3”的朗读内容为例:
 1）标题——乡愿
+<img width="75" alt="image" src="https://user-images.githubusercontent.com/52726689/187064247-ae5eebb3-dd43-4aaa-b332-a3826fe8ca94.png">
 2）问题——问题：乡愿到底是什么？
+<img width="151" alt="image" src="https://user-images.githubusercontent.com/52726689/187064260-7c9abe48-d15e-4b7c-b442-d7da125ade17.png">
 
 2.正文（回答/文章）
 3.评论区补充内容
