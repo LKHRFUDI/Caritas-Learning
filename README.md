@@ -6,13 +6,9 @@
 
 1.标题和问题
 
-以“乡愿.MP3”的朗读内容为例:
-
-1）标题——乡愿
-
-<img width="75" alt="image" src="https://user-images.githubusercontent.com/52726689/187064247-ae5eebb3-dd43-4aaa-b332-a3826fe8ca94.png">
-
-2）问题——问题：乡愿到底是什么？
+以“XX.MP3”的朗读内容为例:
+A.标题——XX
+B.问题——问题：XXXXXXX？
 
 <img width="151" alt="image" src="https://user-images.githubusercontent.com/52726689/187064260-7c9abe48-d15e-4b7c-b442-d7da125ade17.png">
 
@@ -100,6 +96,9 @@ B.需要修正的误差：尽管将段后间距设置为4.65磅，但在新创�
 二、为方便阅读时，在PDF文稿或A4纸张打印的阅读稿件上作批注：
 （基于第一条思路，给阅读过程尽可能留出一些思考空间）
 1）将文稿布局中的页边距设置为大约2.5cm的左右页边距；
+
+<img width="295" alt="image" src="https://user-images.githubusercontent.com/52726689/187064516-3e804b15-5322-44a4-82c3-8ead1cc99ca2.png">
+
 
 
 个人经验：将阅读稿用A4纸打印阅读，或用A4大小的e-ink设备阅读文稿——有助于总览文章结构，也可以作为一种缓解视疲劳的有效手段。
