@@ -88,6 +88,17 @@
 
 [先亲近后多疑](https://maipdf.cn/pdf/d94279527069@pdf)
 
+[习惯](https://maipdf.cn/pdf/d89511581159@pdf)
+
+[执行力](https://maipdf.cn/pdf/d96560614191@pdf)
+
+[职业规划](https://maipdf.cn/pdf/d90850674411@pdf)
+
+[能力](https://maipdf.cn/pdf/d94541817401@pdf)
+
+[无语言的思考](https://maipdf.cn/pdf/d92687836402@pdf)
+
+
 ## Caritas-Word
 
 ## Caritas-Markdown
