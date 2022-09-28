@@ -1,6 +1,17 @@
 ## Caritas-Audio
 ## Caritas-PDF 
-目录（点击下列文档名，可在线预览、打印和下载对应的PDF文档；下列PDF文档所用字体为字由商用字体）
+
+注：
+
+“部分更动较小的更新版本PDF”在上传至maipdf时，似乎只能被识别为增删少部分内容前的旧版本PDF——在下列目录中，此类“未能更新为最新版本的PDF文件名（maipdf链接）”后用“*”号标注；
+
+与下列目录中对应文件同名的最新版本的PDF文件收录于「Caritas-PDF」文件夹，「Caritas-Word」文件夹内的文件与「Caritas-PDF」内的同名文件内容版本相同；
+
+下列目录中带有“*”号的PDF文件——其未能上传至对应maipdf链接的更新版本同名PDF文件，可在「Caritas-PDF」文件夹中找到。
+
+
+
+目录（点击下列文件名，可通过maipdf链接在线预览、打印和下载对应的PDF文件；下列PDF文件所用字体为字由商用字体）：
 
 [真正想做的事](https://maipdf.cn/pdf/d98089431475@pdf)
 
@@ -97,6 +108,13 @@
 [能力](https://maipdf.cn/pdf/d94541817401@pdf)
 
 [无语言的思考](https://maipdf.cn/pdf/d92687836402@pdf)
+
+[情绪失控的孩子](https://maipdf.cn/pdf/d95458245563@pdf)
+
+[失望](https://maipdf.cn/pdf/d91089302369@pdf)
+
+[安全假设](https://maipdf.cn/pdf/d95037314947@pdf) *
+
 
 
 ## Caritas-Word
