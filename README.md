@@ -115,6 +115,14 @@
 
 [安全假设](https://maipdf.cn/pdf/d95037314947@pdf) *
 
+[合理拒绝](https://maipdf.cn/pdf/d98892436919@pdf)
+
+[学会与历史相处]（https://maipdf.cn/pdf/d96893369530@pdf）
+
+[别愤怒](https://maipdf.cn/pdf/d97830368873@pdf)
+
+[巧遇恒问题](https://maipdf.cn/pdf/d90703367677@pdf)
+
 
 
 ## Caritas-Word
