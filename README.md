@@ -1,16 +1,6 @@
 ## Caritas-Audio
 ## Caritas-PDF 
 
-注：
-
-“部分更动较小的更新版本PDF”在上传至maipdf时，似乎只能被识别为增删少部分内容前的旧版本PDF——在下列目录中，此类“未能更新为最新版本的PDF文件，其目录对应名（maipdf链接）”后用“*”号标注；
-
-与下列目录中对应文件同名的最新版本的PDF文件收录于「Caritas-PDF」文件夹，「Caritas-Word」文件夹内的文件与「Caritas-PDF」内的同名文件内容版本相同；
-
-下列目录中带有“*”号的PDF文件——其未能上传至对应maipdf链接的更新版本同名PDF文件，可在「Caritas-PDF」文件夹中找到。
-
-
-
 目录（点击下列文件名，可通过maipdf链接在线预览、打印和下载对应的PDF文件；下列PDF文件所用字体为字由商用字体）：
 
 [真正想做的事](https://maipdf.cn/pdf/d98089431475@pdf)
@@ -113,7 +103,7 @@
 
 [失望](https://maipdf.cn/pdf/d91089302369@pdf)
 
-[安全假设](https://maipdf.cn/pdf/d95037314947@pdf) *
+[安全假设](https://maipdf.cn/pdf/d89218081558@pdf) 
 
 [合理拒绝](https://maipdf.cn/pdf/d98892436919@pdf)
 
@@ -122,6 +112,16 @@
 [别愤怒](https://maipdf.cn/pdf/d97830368873@pdf)
 
 [巧遇恒问题](https://maipdf.cn/pdf/d90703367677@pdf)
+
+[吃到胖](https://maipdf.cn/pdf/d89774390716@pdf)
+
+[蛋糕大战](https://maipdf.cn/pdf/d96390416351@pdf)
+
+[节水呼吁](https://maipdf.cn/pdf/d89465422155@pdf)
+
+[芯片前景](https://maipdf.cn/pdf/d95034581194@pdf)
+
+[反犹](https://maipdf.cn/pdf/d98218080487@pdf)
 
 
 
