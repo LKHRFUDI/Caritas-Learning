@@ -107,7 +107,7 @@
 
 [合理拒绝](https://maipdf.cn/pdf/d98892436919@pdf)
 
-[学会与历史相处]（https://maipdf.cn/pdf/d96893369530@pdf）
+[学会与历史相处](https://maipdf.cn/pdf/d96893369530@pdf)
 
 [别愤怒](https://maipdf.cn/pdf/d97830368873@pdf)
 
@@ -122,6 +122,17 @@
 [芯片前景](https://maipdf.cn/pdf/d95034581194@pdf)
 
 [反犹](https://maipdf.cn/pdf/d98218080487@pdf)
+
+[无道德社会](https://maipdf.cn/pdf/d96903947550@pdf)
+
+[法律漏洞](https://maipdf.cn/pdf/d94604716116@pdf)
+
+[本质](https://maipdf.cn/pdf/d90050838960@pdf)
+
+[权力的总和](https://maipdf.cn/pdf/d97210313067@pdf)
+
+[道法自然](https://maipdf.cn/pdf/d97268322564@pdf)
+
 
 
 
