@@ -133,6 +133,8 @@
 
 [道法自然](https://maipdf.cn/pdf/d97268322564@pdf)
 
+[自然法](https://maipdf.cn/pdf/d98355338759@pdf)
+
 
 
 
