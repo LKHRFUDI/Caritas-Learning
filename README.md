@@ -135,6 +135,11 @@
 
 [自然法](https://maipdf.cn/pdf/d98355338759@pdf)
 
+[西方普世价值](https://maipdf.cn/pdf/d96280617725@pdf)
+
+[临终一面](https://maipdf.cn/pdf/d89289672932@pdf)
+
+
 
 
 
