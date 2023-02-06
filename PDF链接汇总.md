@@ -70,5 +70,28 @@
 
 36. （爱）：https://maifile.cn/est/d25456755712489/pdf
 
-    
+37. 尊师：https://maifile.cn/est/d27946755934112/pdf
+
+38. 祈祷与祝福：https://maifile.cn/est/d28656755969578/pdf
+
+39. 糟糕的进步：https://maifile.cn/est/d23136756050422/pdf
+
+40. 大道理：https://maifile.cn/est/d31936752182480/pdf
+
+41. 励志：https://maifile.cn/est/d22276757127781/pdf
+
+42. 理想：https://www.ximalaya.com/sound/457554409 
+
+43. 
+
+44. 
+
+45. 
+
+46. 
+
+47. 
+
+
+​    
 
