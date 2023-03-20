@@ -6,7 +6,7 @@
 
 3. 爹味：https://maifile.cn/est/d2476787162834/pdf  4921个字，【6】
 
-4. 内卷：https://maifile.cn/est/d3256777358644/pdf 【6】18543个字
+4. 内卷：https://maifile.cn/est/d3256777358644/pdf 18543个字，【6】
 
 5. 和平内卷
 
@@ -224,9 +224,9 @@
 
 112. 制怒：
 
-113. 所托非人：https://maifile.cn/est/d2896776481343/pdf 【7】
+113. 所托非人：https://maifile.cn/est/d2896776481343/pdf 4276个字，【7】
 
-114. （喜欢与贪）：https://maifile.cn/est/d2446776491871/pdf 【7】
+114. （喜欢与贪）：https://maifile.cn/est/d2446776491871/pdf 878个字，【7】
 
 115. 喜欢
 
@@ -236,9 +236,9 @@
 
 118. 爱与妥协
 
-119. 凭爱分手：https://maifile.cn/est/d3156776620680/pdf 14347个字 【6】
+119. 凭爱分手：https://maifile.cn/est/d3156776620680/pdf 14347个字，【6】
 
-120. 赔我啥：https://maifile.cn/est/d3136776588653/pdf 【6】
+120. 赔我啥：https://maifile.cn/est/d3136776588653/pdf 6892个字，【6】
 
 121. 无目的
 
@@ -1677,8 +1677,6 @@
 838. 世故青年：https://maifile.cn/est/d2666778293786/pdf 【7】7283个字
 
 839. 错得对
-
-840. （“大魔王”）
 
 841. 人心不古
 
