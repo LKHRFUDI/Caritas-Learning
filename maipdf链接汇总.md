@@ -667,7 +667,7 @@
 |            防止失业            |                                                              |            |          |
 |             防早恋             |                                                              |            |          |
 |          方法先于材料          | [https://maifile.cn/est/d30696753165589/pdf ](https://maifile.cn/est/d30696753165589/pdf) |            |          |
-|              范式              |                                                              |            |          |
+|              范式              |          https://maifile.cn/est/d3296801861247/pdf           |    722     |  【13】  |
 |            犯我犯人            |                                                              |            |          |
 |              反战              |                                                              |            |          |
 |              反犹              | [https://maifile.cn/est/d2416769572869/pdf ](https://maifile.cn/est/d2416769572869/pdf) |            |          |
@@ -703,16 +703,15 @@
 |            喋喋不休            |                                                              |            |          |
 |              爹味              | [https://maifile.cn/est/d2476787162834/pdf ](https://maifile.cn/est/d2476787162834/pdf) |    4921    |  【6】   |
 |            电车难题            |                                                              |            |          |
-|            电车难题            |                                                              |            |          |
 |             第一次             | [https://maifile.cn/est/d3086768177563/pdf ](https://maifile.cn/est/d3086768177563/pdf) |            |          |
-|             帝国病             |                                                              |            |          |
+|             帝国病             |          https://maifile.cn/est/d2246801804634/pdf           |    3690    |  【13】  |
+|           （邻邦数）           |          https://maifile.cn/est/d2406801846974/pdf           |    1342    |  【13】  |
 |           地狱这东西           |                                                              |            |          |
 |              底线              |                                                              |            |          |
 |         抵抗通胀的王牌         |                                                              |            |          |
 |              敌人              |                                                              |            |          |
 |         低密度安全模式         |                                                              |            |          |
 |           低贱的事情           | [https://maifile.cn/est/d3266788793792/pdf ](https://maifile.cn/est/d3266788793792/pdf) |    6336    |  【6】   |
-|           低贱的事情           |                                                              |            |          |
 |              德州              | [https://maifile.cn/est/d3156769557925/pdf ](https://maifile.cn/est/d3156769557925/pdf) |            |          |
 |            德不配位            |                                                              |            |          |
 |              稻草              |                                                              |            |          |
@@ -857,7 +856,6 @@
 |            WhatThen            |                                                              |            |          |
 |           TOUGHNESS            |                                                              |            |          |
 |        TheWholePackage         |                                                              |            |          |
-|        TheWholePackage         |                                                              |            |          |
 |         TheGameofMole          | [https://maifile.cn/est/d2836777656591/pdf ](https://maifile.cn/est/d2836777656591/pdf) |    2297    |  【6】   |
 |              SOP               |                                                              |            |          |
 |            niceguy             |                                                              |            |          |
@@ -896,7 +894,6 @@
 |            （葬礼）            | [https://maifile.cn/est/d2536773206309/pdf ](https://maifile.cn/est/d2536773206309/pdf) |            |          |
 |            （脏弹）            |                                                              |            |          |
 |          （越爱越有）          |                                                              |            |          |
-|          （越爱越有）          |                                                              |            |          |
 |          （原谅父母）          |                                                              |            |          |
 |          （语文学好）          |                                                              |            |          |
 |          （有意偏置）          |                                                              |            |          |
@@ -907,7 +904,6 @@
 |          （因过知对）          | [https://maifile.cn/est/d25456755135704/pdf ](https://maifile.cn/est/d25456755135704/pdf) |            |          |
 |       （意识形态碎片化）       | [https://maifile.cn/est/d2336779110596/pdf ](https://maifile.cn/est/d2336779110596/pdf) |    1293    |  【6】   |
 |          （抑郁通牒）          |                                                              |            |          |
-|          （抑郁归因）          |                                                              |            |          |
 |          （抑郁归因）          |                                                              |            |          |
 |          （艺术之美）          |                                                              |            |          |
 |         （艺术与哲学）         |                                                              |            |          |
@@ -1062,4 +1058,4 @@
 |            使用说明            |          https://maifile.cn/est/d2976799370155/pdf           |    3466    |  【13】  |
 |          （谢谢提醒）          |          https://maifile.cn/est/d2396799378266/pdf           |    2191    |  【13】  |
 |              讽刺              |          https://maifile.cn/est/d3156799994783/pdf           |    7846    |  【13】  |
-|                                |                                                              |            |          |
+|            侠义精神            |                                                              |            |          |
