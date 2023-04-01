@@ -21,7 +21,7 @@
 |            自由意志            | [https://maifile.cn/est/d25346759284713/pdf ](https://maifile.cn/est/d25346759284713/pdf) |            |          |
 |            自以为是            |                                                              |            |          |
 |            自学捷径            |                                                              |            |          |
-|              自信              |                                                              |            |          |
+|              自信              |          https://maifile.cn/est/d2906802682099/pdf           |    2324    |  【13】  |
 |              自私              | [https://maifile.cn/est/d2766771675958/pdf ](https://maifile.cn/est/d2766771675958/pdf) |            |          |
 |              自视              |                                                              |            |          |
 |              自强              | [https://maifile.cn/est/d2426778903318/pdf ](https://maifile.cn/est/d2426778903318/pdf) |    2560    |  【6】   |
@@ -76,12 +76,11 @@
 |              真诚              |                                                              |            |          |
 |            贞操无价            |                                                              |            |          |
 |           肇因与动因           |                                                              |            |          |
-|           肇因与动因           |                                                              |            |          |
 |             找关系             |                                                              |            |          |
 |            涨跌原理            |                                                              |            |          |
 |         长时间保持理性         | [https://maifile.cn/est/d2536775088537/pdf ](https://maifile.cn/est/d2536775088537/pdf) |            |  【6】   |
 |              长平              |                                                              |            |          |
-|            战胜抑郁            |                                                              |            |          |
+|            战胜抑郁            |          https://maifile.cn/est/d2426802192478/pdf           |    1480    |  【13】  |
 |            战前水平            |                                                              |            |          |
 |              扎实              |                                                              |            |          |
 |           怎样读新闻           |                                                              |            |          |
@@ -89,7 +88,6 @@
 |             责任感             |                                                              |            |          |
 |              早恋              |                                                              |            |          |
 |           糟糕的进步           | [https://maifile.cn/est/d23136756050422/pdf ](https://maifile.cn/est/d23136756050422/pdf) |            |          |
-|                                |                                                              |            |          |
 |            再次崛起            | [https://maifile.cn/est/d32686753033993/pdf ](https://maifile.cn/est/d32686753033993/pdf) |            |          |
 |            砸采样点            |                                                              |            |          |
 |              运气              |         https://maifile.cn/est/d116316741100358@doc          |            |          |
@@ -185,7 +183,6 @@
 |              欣赏              |                                                              |            |          |
 |            芯片前景            | [https://maifile.cn/est/d2596778450950/pdf ](https://maifile.cn/est/d2596778450950/pdf) |   12284    |  【8】   |
 |            芯片风口            | [https://maifile.cn/est/d3076778363391/pdf ](https://maifile.cn/est/d3076778363391/pdf) |    1106    |  【6】   |
-|            心理反刍            |                                                              |            |          |
 |              写实              |                                                              |            |          |
 |            小吉尼斯            |                                                              |            |          |
 |            消除歧视            |                                                              |            |          |
@@ -238,6 +235,7 @@
 |            唯此为大            | [https://maifile.cn/est/d2696775228907/pdf ](https://maifile.cn/est/d2696775228907/pdf) |            |          |
 |            为政以德            |                                                              |            |          |
 |          为委屈而道歉          |                                                              |            |          |
+|                                |                                                              |            |          |
 |           为何对你好           |                                                              |            |          |
 |            危险迹象            | [https://maifile.cn/est/d2836783710833/pdf ](https://maifile.cn/est/d2836783710833/pdf) |    2790    |  【6】   |
 |           （狗肉煲）           |                                                              |            |          |
@@ -252,6 +250,7 @@
 |           完整的清高           | [https://maifile.cn/est/d2476788716055/pdf ](https://maifile.cn/est/d2476788716055/pdf) |    2234    |  【10】  |
 |           完美传染病           | [https://maifile.cn/est/d3126774826829/pdf ](https://maifile.cn/est/d3126774826829/pdf) |            |  【7】   |
 |            挖掘隐私            |                                                              |            |          |
+|            （隐私）            |                                                              |            |          |
 |              脱困              | [https://maifile.cn/est/d3006776295907/pdf ](https://maifile.cn/est/d3006776295907/pdf) |            |  【7】   |
 |             拖拉机             |                                                              |            |          |
 |              颓势              | [https://maifile.cn/est/d23466758888525/pdf ](https://maifile.cn/est/d23466758888525/pdf) |            |          |
@@ -279,6 +278,7 @@
 |              私德              |                                                              |            |          |
 |             说实话             |                                                              |            |          |
 |              说谎              | [https://maifile.cn/est/d2276778342344/pdf ](https://maifile.cn/est/d2276778342344/pdf) |   13545    |  【6】   |
+|            正确知识            |                                                              |            |          |
 |          说服力的重量          |                                                              |            |          |
 |            说得太少            | [https://maifile.cn/est/d26196753120031/pdf ](https://maifile.cn/est/d26196753120031/pdf) |            |          |
 |             水豚君             |                                                              |            |          |
@@ -323,6 +323,7 @@
 |            生而贫穷            | [https://maifile.cn/est/d2806759929870/pdf ](https://maifile.cn/est/d2806759929870/pdf) |            |          |
 |              生吃              |                                                              |            |          |
 |             生包子             | [https://maifile.cn/est/d2656787366087/pdf ](https://maifile.cn/est/d2656787366087/pdf) |    3979    |  【9】   |
+|             待成熟             |          https://maifile.cn/est/d2716803304419/pdf           |    489     |  【13】  |
 |             神义论             |                                                              |            |          |
 |           神学的课题           | [https://maifile.cn/est/d2706779470062/pdf ](https://maifile.cn/est/d2706779470062/pdf) |    1047    |  【6】   |
 |           神学不可信           |                                                              |            |          |
@@ -413,6 +414,7 @@
 |              魄力              |                                                              |            |          |
 |            泼了一身            | [https://maifile.cn/est/d3066768094239/pdf ](https://maifile.cn/est/d3066768094239/pdf) |            |          |
 |            凭爱分手            | [https://maifile.cn/est/d3156776620680/pdf ](https://maifile.cn/est/d3156776620680/pdf) |   14347    |  【6】   |
+|            失而复得            |          https://maifile.cn/est/d2376801872113/pdf           |    905     |  【13】  |
 |            评论冰箱            |                                                              |            |          |
 |              平庸              | [https://maifile.cn/est/d2296775287129/pdf ](https://maifile.cn/est/d2296775287129/pdf) |            |  【7】   |
 |             平安符             |          https://maifile.cn/est/d2656794674014/pdf           |    3002    |  【6】   |
@@ -433,7 +435,7 @@
 |            女子防身            |                                                              |            |          |
 |             影武者             |          https://maifile.cn/est/d2876800058273/pdf           |    741     |  【13】  |
 |             女武者             |                                                              |            |          |
-|           女生不讲理           |                                                              |            |          |
+|           女生不讲理           |          https://maifile.cn/est/d3026803241338/pdf           |    7967    |  【13】  |
 |         女权的历史趋势         |                                                              |            |          |
 |            农夫与蛇            |                                                              |            |          |
 |            农村出身            |                                                              |            |          |
@@ -502,7 +504,7 @@
 |           礼貌的愤怒           | [https://maifile.cn/est/d3306771725521/pdf ](https://maifile.cn/est/d3306771725521/pdf) |            |          |
 |              礼敬              |                                                              |            |          |
 |            礼崩乐坏            |                                                              |            |          |
-|               礼               | [https://maifile.cn/est/d2496788084876/pdf ](https://maifile.cn/est/d2496788084876/pdf) |    2582    |  【9】   |
+|               礼               |          https://maifile.cn/est/d2706803675263/pdf           |    2932    |  【13】  |
 |              文物              |                                                              |            |          |
 |            离家打工            |                                                              |            |          |
 |           离婚冷静期           |                                                              |            |          |
@@ -524,7 +526,7 @@
 |           拉登的遗产           |                                                              |            |          |
 |             快餐式             | [https://maifile.cn/est/d2226768132239/pdf ](https://maifile.cn/est/d2226768132239/pdf) |            |          |
 |           苦难的价值           |                                                              |            |          |
-|            苦而不忍            |                                                              |            |          |
+|            苦而不忍            |          https://maifile.cn/est/d2916803741908/pdf           |    4512    |  【13】  |
 |           苦熬（2）            |                                                              |            |          |
 |           苦熬（1）            |                                                              |            |          |
 |            口红色号            | [https://maifile.cn/est/d2816775304236/pdf ](https://maifile.cn/est/d2816775304236/pdf) |            |  【7】   |
@@ -551,7 +553,9 @@
 |              精英              |                                                              |            |          |
 |           精通儒释道           |                                                              |            |          |
 |           精神资本家           |                                                              |            |          |
-|            精神内耗            |                                                              |            |          |
+|          （精神内耗）          |          https://maifile.cn/est/d3246802253736/pdf           |    3223    |  【13】  |
+|              内耗              |          https://maifile.cn/est/d3236802202092/pdf           |    1186    |  【13】  |
+|            自我怀疑            |          https://maifile.cn/est/d2766802237998/pdf           |    1811    |  【13】  |
 |             进化王             | [https://maifile.cn/est/d2226775319131/pdf ](https://maifile.cn/est/d2226775319131/pdf) |            |  【6】   |
 |             尽全力             | [https://maifile.cn/est/d2416778958449/pdf ](https://maifile.cn/est/d2416778958449/pdf) |    626     |  【6】   |
 |            紧追不放            |                                                              |            |          |
@@ -623,6 +627,9 @@
 |              国教              |                                                              |            |          |
 |           国际话语权           |                                                              |            |          |
 |            滚滚向前            |                                                              |            |          |
+|          （eyes up）           |                                                              |            |          |
+|            （海瑞）            |                                                              |            |          |
+|          （义理气质）          |          https://maifile.cn/est/d2386803684910/pdf           |    283     |  【13】  |
 |            贵族气质            |                                                              |            |          |
 |              贵人              |                                                              |            |          |
 |            光棍问题            | [https://maifile.cn/est/d2346767589765/pdf ](https://maifile.cn/est/d2346767589765/pdf) |            |          |
@@ -666,6 +673,7 @@
 |            房价下跌            |                                                              |            |          |
 |            防止失业            |                                                              |            |          |
 |             防早恋             |                                                              |            |          |
+|              早恋              |                                                              |            |          |
 |          方法先于材料          | [https://maifile.cn/est/d30696753165589/pdf ](https://maifile.cn/est/d30696753165589/pdf) |            |          |
 |              范式              |          https://maifile.cn/est/d3296801861247/pdf           |    722     |  【13】  |
 |            犯我犯人            |                                                              |            |          |
@@ -707,7 +715,7 @@
 |             帝国病             |          https://maifile.cn/est/d2246801804634/pdf           |    3690    |  【13】  |
 |           （邻邦数）           |          https://maifile.cn/est/d2406801846974/pdf           |    1342    |  【13】  |
 |           地狱这东西           |                                                              |            |          |
-|              底线              |                                                              |            |          |
+|              底线              |          https://maifile.cn/est/d2466803193539/pdf           |    4487    |  【13】  |
 |         抵抗通胀的王牌         |                                                              |            |          |
 |              敌人              |                                                              |            |          |
 |         低密度安全模式         |                                                              |            |          |
@@ -796,7 +804,7 @@
 |             不可追             |                                                              |            |          |
 |           不可论断人           | [https://maifile.cn/est/d3126774985081/pdf ](https://maifile.cn/est/d3126774985081/pdf) |            |  【7】   |
 |            不堪回首            | [https://maifile.cn/est/d2676772121003/pdf ](https://maifile.cn/est/d2676772121003/pdf) |            |          |
-|             不紧张             | [https://maifile.cn/est/d32056755327868/pdf ](https://maifile.cn/est/d32056755327868/pdf) |            |          |
+|             不紧张             |          https://maifile.cn/est/d2916803168929/pdf           |    1743    |  【13】  |
 |            不合理权            |                                                              |            |          |
 |           不该受亏待           |                                                              |            |          |
 |         不存在的“如果”         | [https://maifile.cn/est/d2216775385850/pdf ](https://maifile.cn/est/d2216775385850/pdf) |            |  【6】   |
@@ -992,9 +1000,11 @@
 |          （不如体谅）          |                                                              |            |          |
 |       （不存在的“如果”）       |                                                              |            |          |
 |           （玻璃心）           |                                                              |            |          |
+|          （人际敏感）          |          https://maifile.cn/est/d2546803700445/pdf           |    1844    |  【13】  |
 |         （白丁与鸿儒）         |                                                              |            |          |
 |           （爱欲贪）           |                                                              |            |          |
 |          （爱无挑拣）          |                                                              |            |          |
+|            论迹论心            |          https://maifile.cn/est/d2276803222746/pdf           |    1103    |  【13】  |
 |          （爱的实践）          |                                                              |            |          |
 |             （爱）             | [https://maifile.cn/est/d25456755712489/pdf ](https://maifile.cn/est/d25456755712489/pdf) |            |          |
 |      （WhineorComplain）       |                                                              |            |          |
@@ -1043,6 +1053,7 @@
 |            无病呻吟            |                                                              |            |          |
 |            朋友难交            |          https://maifile.cn/est/d2876799037058/pdf           |    2626    |  【13】  |
 |            病得不轻            |          https://maifile.cn/est/d2766799011688/pdf           |    773     |  【13】  |
+|            杀人诛心            |          https://maifile.cn/est/d2466803350800/pdf           |    741     |  【13】  |
 |             诛心病             |          https://maifile.cn/est/d2386798992761/pdf           |    4022    |  【13】  |
 |              诛心              |          https://maifile.cn/est/d23996751040760/pdf          |    3765    |  【13】  |
 |           对事不对人           |                                                              |            |          |
