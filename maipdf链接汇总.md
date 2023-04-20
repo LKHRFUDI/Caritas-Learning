@@ -193,7 +193,7 @@
 |            芯片前景            | [https://maifile.cn/est/d2596778450950/pdf ](https://maifile.cn/est/d2596778450950/pdf) |   12284    |  【8】   |
 |            芯片风口            | [https://maifile.cn/est/d3076778363391/pdf ](https://maifile.cn/est/d3076778363391/pdf) |    1106    |  【6】   |
 |              写实              |                                                              |            |          |
-|            小吉尼斯            |                                                              |            |          |
+|            小吉尼斯            |          https://maifile.cn/est/d3116819694675/pdf           |    776     |  【13】  |
 |            消除歧视            |                                                              |            |          |
 |              香料              | [https://maifile.cn/est/d3216774805435/pdf ](https://maifile.cn/est/d3216774805435/pdf) |            |          |
 |              乡愿              |                                                              |            |          |
@@ -389,7 +389,8 @@
 |            人格分型            |                                                              |            |          |
 |           人负我负人           | [https://maifile.cn/est/d2906776420154/pdf ](https://maifile.cn/est/d2906776420154/pdf) |            |  【6】   |
 |             人吃人             |                                                              |            |          |
-|            人才流失            |                                                              |            |          |
+|            人才流失            |          https://maifile.cn/est/d2476820041797/pdf           |    4706    |  【13】  |
+|          被浪费的人才          |          https://maifile.cn/est/d3146820005300/pdf           |    1089    |  【13】  |
 |           热烈和长久           |          https://maifile.cn/est/d3026804053098/pdf           |    1567    |  【13】  |
 |            群居隐患            | [https://maifile.cn/est/d2606775314786/pdf ](https://maifile.cn/est/d2606775314786/pdf) |            |  【6】   |
 |             缺爱症             |                                                              |            |          |
@@ -399,7 +400,7 @@
 |           权利的总和           | [https://maifile.cn/est/d26096753954750/pdf ](https://maifile.cn/est/d26096753954750/pdf) |            |          |
 |            权利错觉            |          https://maifile.cn/est/d2576806930641/pdf           |    312     |  【13】  |
 |             求助力             |                                                              |            |          |
-|            求之不得            |                                                              |            |          |
+|            求之不得            |          https://maifile.cn/est/d2986820056217/pdf           |    5160    |  【13】  |
 |              求学              |                                                              |            |          |
 |            求同存异            |                                                              |            |          |
 |              蚯蚓              |                                                              |            |          |
@@ -498,6 +499,7 @@
 |           领导力特征           |          https://maifile.cn/est/d2286804554940/pdf           |    649     |  【13】  |
 |             零分卷             |                                                              |            |          |
 |            临终一面            | [https://maifile.cn/est/d2926787383339/pdf ](https://maifile.cn/est/d2926787383339/pdf) |    2599    |  【6】   |
+|              匠心              |                                                              |            |          |
 |            疗愈艺术            |                                                              |            |          |
 |            两罪并罚            | [https://maifile.cn/est/d2626762188055/pdf ](https://maifile.cn/est/d2626762188055/pdf) |            |          |
 |            两种伪善            |                                                              |            |          |
@@ -509,7 +511,8 @@
 |             恶之花             |          https://maifile.cn/est/d3016796359149/pdf           |    9457    |  【13】  |
 |              励志              | [https://maifile.cn/est/d22276757127781/pdf ](https://maifile.cn/est/d22276757127781/pdf) |            |          |
 |            立场分歧            |          https://maifile.cn/est/d2286804096225/pdf           |    3555    |  【13】  |
-|            厉害思维            |                                                              |            |          |
+|            厉害思维            |          https://maifile.cn/est/d3096819919875/pdf           |    2999    |  【13】  |
+|           目标谷爱凌           |                                                              |            |          |
 |           历史的燃料           |                                                              |            |          |
 |            历史常识            |                                                              |            |          |
 |            历史必然            |                                                              |            |          |
@@ -546,7 +549,6 @@
 |            蓝血专业            |                                                              |            |          |
 |           拉登的遗产           |                                                              |            |          |
 |             快餐式             | [https://maifile.cn/est/d2226768132239/pdf ](https://maifile.cn/est/d2226768132239/pdf) |            |          |
-|           苦难的价值           |                                                              |            |          |
 |            苦而不忍            |          https://maifile.cn/est/d2916803741908/pdf           |    4512    |  【13】  |
 |           苦熬（2）            |                                                              |            |          |
 |           苦熬（1）            |                                                              |            |          |
@@ -678,6 +680,7 @@
 |            功罪千秋            |                                                              |            |          |
 |             公权力             |                                                              |            |          |
 |            公平因果            |                                                              |            |          |
+|            因果报应            |                                                              |            |          |
 |            公派留学            | [https://maifile.cn/est/d27136753298528/pdf ](https://maifile.cn/est/d27136753298528/pdf) |            |          |
 |           公开换安全           |                                                              |            |          |
 |              工贼              |                                                              |            |          |
@@ -719,6 +722,9 @@
 |            犯我犯人            |                                                              |            |          |
 |              反战              |                                                              |            |          |
 |              反犹              | [https://maifile.cn/est/d2416769572869/pdf ](https://maifile.cn/est/d2416769572869/pdf) |            |          |
+|              仇日              |          https://maifile.cn/est/d2776819687753/pdf           |    750     |  【13】  |
+|              仇港              |                                                              |            |          |
+|           苦难的价值           |          https://maifile.cn/est/d2636819677289/pdf           |    734     |  【13】  |
 |             反压力             |                                                              |            |          |
 |             反虚无             | [https://maifile.cn/est/d2376775237571/pdf ](https://maifile.cn/est/d2376775237571/pdf) |            |  【6】   |
 |           反社会人格           | [https://maifile.cn/est/d3076783643591/pdf ](https://maifile.cn/est/d3076783643591/pdf) |    1088    |  【6】   |
@@ -869,6 +875,7 @@
 |              本质              | [https://maifile.cn/est/d2996778218743/pdf ](https://maifile.cn/est/d2996778218743/pdf) |   11845    |  【6】   |
 |             被讨厌             |                                                              |            |          |
 |            十足真金            |                                                              |            |          |
+|            天使投资            |          https://maifile.cn/est/d2406819662552/pdf           |    520     |  【13】  |
 |         被说幼稚的男人         |                                                              |            |          |
 |           被拣选的人           |                                                              |            |          |
 |            被害妄想            |                                                              |            |          |
@@ -897,6 +904,7 @@
 |             安全感             |                                                              |            |          |
 |              爱语              |                                                              |            |          |
 |             几分熟             |          https://maifile.cn/est/d2636807061532/pdf           |    1999    |  【13】  |
+|           间谍家家酒           |          https://maifile.cn/est/d3286819658836/pdf           |    722     |  【13】  |
 |            爱与自由            |                                                              |            |          |
 |            爱与妥协            |                                                              |            |          |
 |           爱与神哲学           |          https://maifile.cn/est/d2986804529380/pdf           |    733     |  【13】  |
@@ -904,8 +912,6 @@
 |            爱情长跑            |                                                              |            |          |
 |              爱情              | [https://maifile.cn/est/d24106753335028/pdf ](https://maifile.cn/est/d24106753335028/pdf) |            |          |
 |             爱怕了             | [https://maifile.cn/est/d2776775299951/pdf ](https://maifile.cn/est/d2776775299951/pdf) |            |  【7】   |
-|           爱你的仇敌           |                                                              |            |          |
-|           爱你的仇敌           |                                                              |            |          |
 |           爱你的仇敌           |                                                              |            |          |
 |            爱好工作            |                                                              |            |          |
 |            爱国爱党            | [https://maifile.cn/est/d2356783791443/pdf ](https://maifile.cn/est/d2356783791443/pdf) |    4159    |  【6】   |
