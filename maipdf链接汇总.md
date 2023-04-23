@@ -281,7 +281,7 @@
 |            谈的必要            |                                                              |            |          |
 |           态度最重要           |                                                              |            |          |
 |              踏实              |                                                              |            |          |
-|              死亡              | [https://maifile.cn/est/d3246773605091/pdf ](https://maifile.cn/est/d3246773605091/pdf) |            |          |
+|              死亡              |          https://maifile.cn/est/d2666822402921/pdf           |    8529    |  【13】  |
 |             思而行             | [https://maifile.cn/est/d2966778227657/pdf ](https://maifile.cn/est/d2966778227657/pdf) |    2609    |  【13】  |
 |            （原则）            |          https://maifile.cn/est/d2236809582341/pdf           |    2667    |  【13】  |
 |              私聊              |                                                              |            |          |
@@ -290,7 +290,8 @@
 |              说谎              | [https://maifile.cn/est/d2276778342344/pdf ](https://maifile.cn/est/d2276778342344/pdf) |   13545    |  【6】   |
 |            正确知识            |                                                              |            |          |
 |              反驳              |          https://maifile.cn/est/d2416818248001/pdf           |    1361    |  【13】  |
-|          说服力的重量          |                                                              |            |          |
+|          说服力的重量          | [https://maifile.cn/est/d2656818366942/pdf ](https://maifile.cn/est/d2656818366942/pdf) |    5812    |  【13】  |
+|            达意责任            |                                                              |    2859    |  【13】  |
 |           当然反驳权           |                                                              |            |          |
 |            最蠢的事            |                                                              |            |          |
 |              方言              |                                                              |            |          |
@@ -391,6 +392,10 @@
 |             人吃人             |                                                              |            |          |
 |            人才流失            |          https://maifile.cn/est/d2476820041797/pdf           |    4706    |  【13】  |
 |          被浪费的人才          |          https://maifile.cn/est/d3146820005300/pdf           |    1089    |  【13】  |
+|             大好人             |          https://maifile.cn/est/d2756822609770/pdf           |    1128    |  【13】  |
+|            只留好人            |                                                              |            |          |
+|              好报              |                                                              |            |          |
+|          最完美的复仇          |                                                              |            |          |
 |           热烈和长久           |          https://maifile.cn/est/d3026804053098/pdf           |    1567    |  【13】  |
 |            群居隐患            | [https://maifile.cn/est/d2606775314786/pdf ](https://maifile.cn/est/d2606775314786/pdf) |            |  【6】   |
 |             缺爱症             |                                                              |            |          |
@@ -636,9 +641,12 @@
 |            怀疑理性            |                                                              |            |          |
 |              画画              |                                                              |            |          |
 |             滑过去             |          https://maifile.cn/est/d2316805848217/pdf           |    3381    |  【13】  |
+|             未爆弹             |          https://maifile.cn/est/d2856821402280/pdf           |    1836    |  【13】  |
 |              花名              |                                                              |            |          |
 |            厚颜无耻            |          https://maifile.cn/est/d3066804539301/pdf           |    1945    |  【13】  |
 |           后悔的真相           |                                                              |            |          |
+|              真相              |          https://maifile.cn/est/d3116820388420/pdf           |    1470    |  【13】  |
+|              1/3               |          https://maifile.cn/est/d2236820417566/pdf           |    1253    |  【13】  |
 |            宏大叙事            |                                                              |            |          |
 |          （宏大叙事）          |          https://maifile.cn/est/d3206808794502/pdf           |    1715    |  【13】  |
 |              红线              |                                                              |            |          |
@@ -646,7 +654,7 @@
 |             核脑洞             | [https://maifile.cn/est/d3056761130618/pdf ](https://maifile.cn/est/d3056761130618/pdf) |            |          |
 |            应急储备            |          https://maifile.cn/est/d3246806988448/pdf           |    5257    |  【13】  |
 |            和平内卷            |                                                              |            |          |
-|            何如不问            |                                                              |            |          |
+|            何如不问            |          https://maifile.cn/est/d3186820436365/pdf           |    4540    |  【13】  |
 |           合理（2）            |                                                              |            |          |
 |              合理              |                                                              |            |          |
 |              耗材              |                                                              |            |          |
@@ -710,7 +718,7 @@
 |              疯王              |                                                              |            |          |
 |             粉红税             | [https://maifile.cn/est/d2776759584364/pdf ](https://maifile.cn/est/d2776759584364/pdf) |            |          |
 |             分寸感             |                                                              |            |          |
-|             废没废             |                                                              |            |          |
+|             废没废             |          https://maifile.cn/est/d3016822522395/pdf           |    5253    |  【13】  |
 |           非洲、非洲           |                                                              |            |          |
 |          非常之“非常”          |                                                              |            |          |
 |            房价下跌            |                                                              |            |          |
@@ -944,7 +952,7 @@
 |            “资本家”            |                                                              |            |          |
 |            “哲学家”            |                                                              |            |          |
 |          “无思想的人”          |                                                              |            |          |
-|             “纪实”             |                                                              |            |          |
+|             “纪实”             |          https://maifile.cn/est/d2706821426289/pdf           |    4599    |  【13】  |
 |            星之航路            |          https://maifile.cn/est/d2456810987630/pdf           |  1525个字  |  【13】  |
 |         “几代人的努力”         |                                                              |            |          |
 |          “大众心理学”          |                                                              |            |          |
@@ -1026,7 +1034,7 @@
 |   （伦理原则不可“结果导向”）   |                                                              |            |          |
 |            （良知）            | [https://maifile.cn/est/d2316776475580/pdf ](https://maifile.cn/est/d2316776475580/pdf) |            |  【6】   |
 |            （可惜）            | [https://maifile.cn/est/d2596772062284/pdf ](https://maifile.cn/est/d2596772062284/pdf) |            |          |
-|          （可不可选）          | [https://maifile.cn/est/d2576778091993/pdf ](https://maifile.cn/est/d2576778091993/pdf) |    1424    |  【7】   |
+|          （可不可选）          |          https://maifile.cn/est/d2356820406170/pdf           |    1424    |  【13】  |
 |         （科学与信仰）         |                                                              |            |          |
 |         （抗通胀投资）         | [https://maifile.cn/est/d2686761058783/pdf ](https://maifile.cn/est/d2686761058783/pdf) |            |          |
 |          （捐赠平台）          | [https://maifile.cn/est/d29486754061339/pdf ](https://maifile.cn/est/d29486754061339/pdf) |            |          |
