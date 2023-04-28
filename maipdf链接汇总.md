@@ -171,6 +171,7 @@
 |         学会与历史相处         |                                                              |            |          |
 |           学会不轻视           |          https://maifile.cn/est/d2546817008653/pdf           |    813     |  【13】  |
 |              学会              |                                                              |            |          |
+|            必死必生            |          https://maifile.cn/est/d2966826452326/pdf           |    1114    |  【13】  |
 |            学好语文            | [https://maifile.cn/est/d2706775026218/pdf ](https://maifile.cn/est/d2706775026218/pdf) |            |  【6】   |
 |            学好会计            |                                                              |            |          |
 |            玄门正宗            |                                                              |            |          |
@@ -190,6 +191,7 @@
 |            新和联胜            |                                                              |            |          |
 |           欣赏（2）            |                                                              |            |          |
 |              欣赏              |                                                              |            |          |
+|              套皮              |          https://maifile.cn/est/d2336823397196/pdf           |    696     |  【13】  |
 |            芯片前景            | [https://maifile.cn/est/d2596778450950/pdf ](https://maifile.cn/est/d2596778450950/pdf) |   12284    |  【8】   |
 |            芯片风口            | [https://maifile.cn/est/d3076778363391/pdf ](https://maifile.cn/est/d3076778363391/pdf) |    1106    |  【6】   |
 |              写实              |                                                              |            |          |
@@ -291,7 +293,7 @@
 |            正确知识            |                                                              |            |          |
 |              反驳              |          https://maifile.cn/est/d2416818248001/pdf           |    1361    |  【13】  |
 |          说服力的重量          | [https://maifile.cn/est/d2656818366942/pdf ](https://maifile.cn/est/d2656818366942/pdf) |    5812    |  【13】  |
-|            达意责任            |                                                              |    2859    |  【13】  |
+|            达意责任            |          https://maifile.cn/est/d2946822618040/pdf           |    2859    |  【13】  |
 |           当然反驳权           |                                                              |            |          |
 |            最蠢的事            |                                                              |            |          |
 |              方言              |                                                              |            |          |
@@ -306,6 +308,8 @@
 |            术不可补            | [https://maifile.cn/est/d2386788829420/pdf ](https://maifile.cn/est/d2386788829420/pdf) |    1716    |  【6】   |
 |             熟鸡蛋             |          https://maifile.cn/est/d2666805021362/pdf           |    1051    |  【13】  |
 |            孰强孰弱            |          https://maifile.cn/est/d2956794757691/pdf           |   10108    |  【10】  |
+|            （礁石）            |          https://maifile.cn/est/d2866825555038/pdf           |    405     |  【13】  |
+|            天命昭昭            |                                                              |            |          |
 |            书法风尚            |                                                              |            |          |
 |              书法              | [https://maifile.cn/est/d2876759913429/pdf ](https://maifile.cn/est/d2876759913429/pdf) |            |          |
 |            授信技术            | [https://maifile.cn/est/d2816778297145/pdf ](https://maifile.cn/est/d2816778297145/pdf) |    522     |  【6】   |
@@ -395,6 +399,7 @@
 |             大好人             |          https://maifile.cn/est/d2756822609770/pdf           |    1128    |  【13】  |
 |            只留好人            |                                                              |            |          |
 |              好报              |                                                              |            |          |
+|        好人多还是坏人多        |          https://maifile.cn/est/d2316822972426/pdf           |    1295    |  【13】  |
 |          最完美的复仇          |                                                              |            |          |
 |           热烈和长久           |          https://maifile.cn/est/d3026804053098/pdf           |    1567    |  【13】  |
 |            群居隐患            | [https://maifile.cn/est/d2606775314786/pdf ](https://maifile.cn/est/d2606775314786/pdf) |            |  【6】   |
@@ -534,7 +539,9 @@
 |              礼敬              |                                                              |            |          |
 |            礼崩乐坏            |                                                              |            |          |
 |               礼               |          https://maifile.cn/est/d2706803675263/pdf           |    2932    |  【13】  |
+|            打碎观音            |          https://maifile.cn/est/d3006822933459/pdf           |    1751    |  【13】  |
 |              文物              |                                                              |            |          |
+|              圣蓝              |          https://maifile.cn/est/d3206826945598/pdf           |    2381    |  【13】  |
 |            离家打工            |                                                              |            |          |
 |           离婚冷静期           |                                                              |            |          |
 |              冷漠              |                                                              |            |          |
@@ -580,7 +587,7 @@
 |              救人              |                                                              |            |          |
 |            纠缠不休            |                                                              |            |          |
 |              静气              |          https://maifile.cn/est/d2956805156478/pdf           |    1247    |  【13】  |
-|              井田              |                                                              |            |          |
+|              井田              |          https://maifile.cn/est/d3046826617661/pdf           |    9184    |  【13】  |
 |        精致的利己主义者        |                                                              |            |          |
 |              精英              |                                                              |            |          |
 |           精通儒释道           |                                                              |            |          |
@@ -856,7 +863,7 @@
 |             不损人             |                                                              |            |          |
 |             不说话             |                                                              |            |          |
 |            不生孩子            |                                                              |            |          |
-|             不怯场             |                                                              |            |          |
+|             不怯场             |          https://maifile.cn/est/d2786822955488/pdf           |    2050    |  【13】  |
 |            不配被爱            |                                                              |            |          |
 |            不论大事            |                                                              |            |          |
 |            不立文字            | [https://maifile.cn/est/d2796793305706/pdf ](https://maifile.cn/est/d2796793305706/pdf) |    1021    |  【6】   |
@@ -978,6 +985,7 @@
 |          （语文不行）          |          https://maifile.cn/est/d3096805902784/pdf           |    177     |  【13】  |
 |          （有意偏置）          |                                                              |            |          |
 |          （勇者特权）          | [https://maifile.cn/est/d2476760379260/pdf ](https://maifile.cn/est/d2476760379260/pdf) |            |          |
+|          （真理之美）          |          https://maifile.cn/est/d3166823189113/pdf           |    933     |  【13】  |
 |          （影视奇观）          |                                                              |            |          |
 |          （英雄气质）          | [https://maifile.cn/est/d2586810143030/pdf ](https://maifile.cn/est/d2586810143030/pdf) |    9494    |  【13】  |
 |     （Whine or Complain）      |                                                              |            |          |
